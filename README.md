@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Melani-Rossouw
+- 👀 I’m interested in art
+- 🌱 I’m currently learning UX Design through Goolge 
+- 💞️ I’m looking to collaborate on UI Figma Designing
+- 📫 How to reach me: <a href="https://melanirossouw.com/">My Artist Website</a>
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I'm learning how to play the violin
